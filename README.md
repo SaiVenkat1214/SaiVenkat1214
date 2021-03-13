@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SaiVenkat1214
-- 👀 I’m interested in Hiring Right talent in Semiconductor, Embedded and IT domains
+- 👀 I’m interested in Hiring Right talent in Semiconductor, Embedded and IT domain
 - 🌱 I’m currently learning different ways to find right talent
 - 💞️ I’m looking to collaborate and connect to talk about the opportunties Qualcomm has...
 - 📫 How to reach me ...venkat.nidumulu@gmail.com
